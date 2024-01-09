@@ -1,0 +1,2 @@
+# vagOk
+keiszmdior
